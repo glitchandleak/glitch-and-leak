@@ -1,0 +1,2 @@
+# normie
+Gijinka Normie
